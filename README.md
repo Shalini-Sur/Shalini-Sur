@@ -1,3 +1,6 @@
+![Alt text](https://https://pixabay.com/illustrations/ai-generated-woman-hacker-8180209/.com)
+
+
 - 👋 Hi, I’m @Shalini-Sur
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
